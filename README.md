@@ -1,0 +1,1 @@
+# eslerin-bosanma-nedeni
